@@ -15,3 +15,15 @@ Toi ${\color{#9E0000} or}$ Reau. <img src="https://i.postimg.cc/hGp3dJp2/red.gif
 - <sub> **Hit List**: <a href="https://github.com/hollow-cirque">zan</a>, <a href="https://github.com/embalmcinth">vik</a>, <a href="https://github.com/b0nelessgh0st">rei</a>. more will be added. watch out.</sub><br>
 - <sub> No Explicit Dni criteria, I Hide freely. I may be annoying with my interests, I don't like to share some of my favorites. I love Anaxa, Mitya, Calogado and Nagito with a burning passion right now, if you gaf.</sub><br>
 - <sub> My mood often changes without warning, i do ghost often and have a hard time responding....I don't like most people. BUT ! don't be scared to speak to me, Despite my nature, I am kind! I love all my #true friends!
+</details>
+<details>
+        <summary>   ❗ alts. </summary>
+ 
+- <sub>I change my shit a lot so I don't blame you if you forget who I am. I used to go by @illnurse. that was my longest username I've kept, *I think*.</sub> 
+ <div id="text" align="center">
+  <img src="https://file.garden/Z4_uMXj5okOfzfmz/nyugitokun" alt="Pen" width="100" height="100"><br>
+<b><a href="https://github.com/taintedflesh">taintedflesh</a> .  <a href="https://github.com/KOMAHlNA">KOMAHlNA</a></b><br>
+how do people use more than 1 alt it makes me go Crazy khhhhh!!!!!!!!<br>
+  <sub><a href="https://vm.tiktok.com/ZN8kjv93R/">©edit</a> I'mafuckin edit addict I watch edits while drooling<sub><br> 
+ </div>
+ </details>
