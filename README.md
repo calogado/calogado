@@ -1,23 +1,17 @@
 <div id="text" align="center">
 
-،، ݃<img src="https://files.catbox.moe/bzpmhd.gif" alt="Pen" width="20" height="20">   ⠀  <code>[![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&weight=100&size=17&duration=2000&pause=1000&color=929C50&center=true&vCenter=true&width=290&height=26&lines=I've+made+peace+with+the+fact+that;I'm+a+lowly%2C+stupid%2C+insignificant+human;who+can't+do+anything+right.)](https://git.io/typing-svg)</code>  ⠀  ۪𓈒 ຼ˚ִִ𓈒꒱  <br>
-  <table>
-<tr>
-<td style="vertical-align: top;">
-  <img src="https://file.garden/Z4_uMXj5okOfzfmz/ezgif.com-gif-maker.gif" alt="Pen" width="90" height="115">
-</td>
-
-<td style="vertical-align: top;">
-  <div class="message">
-    <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled119_20260919114902.png" width="20" height="20" alt="Description"><i>used to be @illnurse</i> !<br>
-${\color{#8d916d} read}$ ${\color{#a2bf63} rentry}$. hi <a href="https://github.com/hollow-cirque">zan</a>, <a href="https://github.com/embalmcinth">vik</a>🩹<br>
-    <a href="https://mika.atabook.org/"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled115_20260919113000.png" width="60" height="20" alt="Description"></a> <img src="https://i.postimg.cc/cC3wspmL/1208199077674881094.gif" alt="Pen" width="20" height="20"> <a href="https://rentry.co/trust"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled115_20260919113115.png" width="60" height="23" alt="Description"></a><br>
- 𓈒 ˚ 𓏻 ‎ <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/15/l23.webp" alt="Pen" width="20" height="20"> ᣟᣟ<code>BMF!!!</code> ⏝ི
-  </div>
-</td>
-</tr>
-</table>
+،، ݃<img src="https://i.postimg.cc/2SNDF8ZG/red.gif" alt="Pen" width="20" height="20">  ⠀... <code>[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=17&duration=1500&pause=1000&color=9E0000&width=141&height=26&lines=%E6%97%A9%E5%AF%9D%E3%80%80%E6%97%A9%E8%B5%B7%E3%81%8D%E3%80%80%F3%A0%81%AF%C2%B7%C2%B7%C2%B7;%E5%8B%89%E5%BC%B7%E3%80%80%E9%81%8B%E5%8B%95+%C2%B7%C2%B7%C2%B7;%E5%AB%8C%E3%81%84%E3%81%A7%E3%81%97%E3%82%87%E3%81%86%EF%BC%9F;%E3%81%AD%E3%81%88%E5%AB%8C%E3%81%84%E3%81%A7%E3%81%97%E3%82%87%E3%81%86%EF%BC%9F)](https://git.io/typing-svg)</code>͜𓏼✚  ⠀<img src="https://i.postimg.cc/kG54CMc2/red.gif" alt="Pen" width="25" height="25"><br>
+![](https://file.garden/Z4_uMXj5okOfzfmz/kyaahrlpme)<br>
+Toi ${\color{#9E0000} or}$ Reau. <img src="https://i.postimg.cc/hGp3dJp2/red.gif" alt="Pen" width="20" height="20"> **20**岁..<br>
+<code>any</code> prns. idgafgender<br>
+<img src="https://i.postimg.cc/KvMbMgRy/red.gif" alt="Pen" width="20" height="20"><br>
+ <sub> [*新*](https://mika.atabook.org)ㅤ<img src="https://i.postimg.cc/h4Z6M4Hf/red.gif" alt="Pen" width="15" height="15">ㅤ[*StrawPage*](https://anaxa.straw.page/)ㅤ<img src="https://i.postimg.cc/m2CDGn3c/red.png" alt="Pen" width="15" height="15">ㅤ[*Edit*](https://vm.tiktok.com/ZN8hWuuGx/)<br>
+![](https://komarev.com/ghpvc/?username=calogado&color=9E0000&label=patients♡)
+ </div>
+ 
+ <details>
+        <summary>   ❓ more. </summary>
   
-⠀ ⠀ ⠀art cr: <a href="https://x.com/redactedhaunt"> ①</a> + <a href="https://www.tiktok.com/@peakksie?_r=1&_t=ZN-9A0m1tOxAn8"> ❷</a>. ⊹ ࣪ ˖![](https://komarev.com/ghpvc/?username=KOMAHlNA&color=929C50&label=clovers♡)   ⸝⸝ ⠀<br><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arial&size=17&duration=1900&pause=900&color=929C50&width=77&height=27&lines=%EF%B8%B5%E0%B9%91%CB%8A%CF%89%CB%8B+%E2%99%AF+%F3%A0%81%90" alt="Typing SVG" /></a>
-<br>
-  <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled120_20260919125136.png" alt="Pen" width="190" height="20">  
+- <sub> **Hit List**: <a href="https://github.com/hollow-cirque">zan</a>, <a href="https://github.com/embalmcinth">vik</a> more will be added. watch out.</sub><br>
+- <sub> No Explicit Dni criteria, I Hide freely. I may be annoying with my interests, I don't like to share some of my favorites. I love Anaxa, Mitya, Calogado and Nagito with a burning passion right now, if you gaf.</sub><br>
+- <sub> My mood often changes without warning, i do ghost often and have a hard time responding....I don't like most people. BUT ! don't be scared to speak to me, Despite my nature, I am kind! I love all my #true friends!
