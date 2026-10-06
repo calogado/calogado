@@ -23,7 +23,6 @@ Toi ${\color{#9E0000} or}$ Reau. <img src="https://i.postimg.cc/hGp3dJp2/red.gif
  <div id="text" align="center">
   <img src="https://file.garden/Z4_uMXj5okOfzfmz/nyugitokun" alt="Pen" width="100" height="100"><br>
 <b><a href="https://github.com/taintedflesh">taintedflesh</a> .  <a href="https://github.com/KOMAHlNA">KOMAHlNA</a></b><br>
-how do people use more than 1 alt it makes me go Crazy khhhhh!!!!!!!!<br>
-  <sub><a href="https://vm.tiktok.com/ZN8kjv93R/">©edit</a> I'mafuckin edit addict I watch edits while drooling<sub><br> 
+  <sub><a href="https://vm.tiktok.com/ZN8kjv93R/">©edit</a></sub><br> 
  </div>
  </details>
