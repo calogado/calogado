@@ -12,6 +12,6 @@ Toi ${\color{#9E0000} or}$ Reau. <img src="https://i.postimg.cc/hGp3dJp2/red.gif
  <details>
         <summary>   ❓ more. </summary>
   
-- <sub> **Hit List**: <a href="https://github.com/hollow-cirque">zan</a>, <a href="https://github.com/embalmcinth">vik</a> more will be added. watch out.</sub><br>
+- <sub> **Hit List**: <a href="https://github.com/hollow-cirque">zan</a>, <a href="https://github.com/embalmcinth">vik</a>, <a href="https://github.com/b0nelessgh0st">rei</a>. more will be added. watch out.</sub><br>
 - <sub> No Explicit Dni criteria, I Hide freely. I may be annoying with my interests, I don't like to share some of my favorites. I love Anaxa, Mitya, Calogado and Nagito with a burning passion right now, if you gaf.</sub><br>
 - <sub> My mood often changes without warning, i do ghost often and have a hard time responding....I don't like most people. BUT ! don't be scared to speak to me, Despite my nature, I am kind! I love all my #true friends!
