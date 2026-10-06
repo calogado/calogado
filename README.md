@@ -19,7 +19,7 @@ Toi ${\color{#9E0000} or}$ Reau. <img src="https://i.postimg.cc/hGp3dJp2/red.gif
 <details>
         <summary>   ❗ alts. </summary>
  
-- <sub>I change my shit a lot so I don't blame you if you forget who I am. I used to go by @illnurse. that was my longest username I've kept, *I think*.</sub> 
+- <sub>I change my shit a lot so I wouldn't blame you if you forget who I am. the longest username I've kept was @illnurse, *I think*.</sub> 
  <div id="text" align="center">
   <img src="https://file.garden/Z4_uMXj5okOfzfmz/nyugitokun" alt="Pen" width="100" height="100"><br>
 <b><a href="https://github.com/taintedflesh">taintedflesh</a> .  <a href="https://github.com/KOMAHlNA">KOMAHlNA</a></b><br>
