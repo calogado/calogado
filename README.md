@@ -4,4 +4,5 @@
 <p align="center">im only really interested in <ins>utau</ins> and <ins>homestuck</ins> right now but ive been into a large variety of things!</p>
 <p align="center">its overall best not to directly talk to me unless we're actually friends or im roleplaying with you. you can <a href="https://heki.atabook.org/">sign my atabook</a> though!</p>
 <p align="center">if youre <ins>proship/profic or darkship</ins> i especially DONT want to talk to you. sorry!</p>
+<p align="center"><a href="https://hits.sh/github.com/calogado/"><img alt="Hits" src="https://hits.sh/github.com/calogado.svg?label=visitors&color=a2a2a2"/></a></p>
 <p align="center"><img src="https://64.media.tumblr.com/4a928b2f314f82b16a22db96777e10db/8a707704c314f6aa-7c/s1280x1920/b2acb2d5074da0562a9f75f1ee56e17c958d5f64.pnj" width="600px"></p>
